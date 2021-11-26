@@ -1,4 +1,2 @@
-- 👋 Hi, I’m @Paulceen
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ..
+i am creative.
+highly intellectual and love to work on new projects.
